@@ -9,3 +9,5 @@ Columbo ist italienischer Abstammung und tritt fast immer höflich und zuvorkomm
 * ist häufig unrasiert
 * ist hochintelligent
 * ermittelt gründlich
+
+> Tut mir wirklich leid, Sie nochmal belästigen zu müssen, Sir, aber ...
