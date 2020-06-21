@@ -1,3 +1,4 @@
+*Quelle: https://de.wikipedia.org/wiki/Columbo#Die_Figur_Columbo*
 # Inspektor Columbo
 Inspektor Columbo ist ein Mitarbeiter des Morddezernats des Los Angeles Police Department und tritt als unordentlicher, oft leicht begriffsstutzig wirkender Polizeibeamter auf. 
 Er wird gern als "seltsamer Mann" oder auch als "Inspektor mit zerknittertem Mantel und zerknittertem Gesicht" beschrieben, ist kleingewachsen und bewegt sich meist in schlechter, gebeugter Körperhaltung. 
