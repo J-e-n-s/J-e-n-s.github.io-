@@ -11,3 +11,5 @@ Columbo ist italienischer Abstammung und tritt fast immer höflich und zuvorkomm
 * ermittelt gründlich
 
 > Tut mir wirklich leid, Sie nochmal belästigen zu müssen, Sir, aber ...
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/e/e3/Peter_Falk_Columbo_monument.JPG/800px-Peter_Falk_Columbo_monument.JPG"/> 
